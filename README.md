@@ -1,0 +1,1 @@
+Hai ini lirik lagu 
